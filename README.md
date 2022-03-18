@@ -1,1 +1,1 @@
-# Excercises-for-Creative-Interaction-Design
+# Exercises-for-Creative-Interaction-Design
